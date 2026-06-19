@@ -85,8 +85,8 @@ Any changes will be posted on the official website, and the updated date at the 
 
 ## 11. Contact
 
-For information about this Privacy Policy or Orvita, please visit:
+For information about this Privacy Policy or Orvita, please contact us at:
 
-https://orbita-spin-tap.base44.app
+marinogamer1@gmail.com
 
 By using Orvita, you agree to the terms of this Privacy Policy.
